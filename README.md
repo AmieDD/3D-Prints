@@ -1,2 +1,2 @@
-# 3D-Prints
-3D Print Designs
+# 3D Print Designs by AmieDD
+
